@@ -41,7 +41,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Small and Tedious.md",
+                "file": "Writing Class/Small and Tedious.md",
                 "mode": "source",
                 "source": false
               },
@@ -142,7 +142,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Small and Tedious.md",
+                "file": "Writing Class/Small and Tedious.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -161,7 +161,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Small and Tedious.md",
+                "file": "Writing Class/Small and Tedious.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
@@ -204,7 +204,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Small and Tedious.md",
+                "file": "Writing Class/Small and Tedious.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
@@ -242,14 +242,14 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "727d763c7b058c52",
+  "active": "eedead2c183e6589",
   "lastOpenFiles": [
     "Writing Class/Hangover at the Monastery.md",
     "Writing Class/Diogo Backstory.md",
     "Writing Class/Creative Writing Sections.md",
     "Writing Class",
     "Brewer's & Herbalism Tool Usage.md",
-    "Small and Tedious.md",
+    "Writing Class/Small and Tedious.md",
     "Brewer's Supplies/Monkbrew.md",
     "Brewer's Supplies",
     "Welcome.md"
