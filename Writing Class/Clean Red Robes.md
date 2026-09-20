@@ -24,10 +24,10 @@ The Elder Monk leaned as far back as he just leaned forward, eyes agape. Diogo t
 
 "I see a sorry old man who wishes to save face after a dumb rich merchant's boy, whose parents couldn't even bother to take care of him, admitted only now, after needing to pay up 15 gold pieces. Not two weeks ago when I paid him."
 
-Franco shrunk even further behind the Elder Monk, his mouth trembling open and eyes watering with tears at the battled hardened veteran approaching him. Diogo put one hand on each of their faces. "I see a coward who could only think of his principles and self. I'll remind you Elder. You deny me the ability to study history that could save thousands of lives here in Maerta."
+Franco shrunk even further behind the Elder Monk, his mouth trembling open and eyes watering with tears at the battled hardened veteran approaching him. Diogo put one hand on each of their faces. "I see a coward who could only think of his principles and self. I'll remind you Elder. You deny me the ability to study a history that could save thousands of lives here in Maerta."
 
 The Elder Monk was still, staring into Diogo's eyes for nearly a half minute. Finally, he spoke. 
 
-"I believe you to be a smart man, Brother Diogo, but you have a vivid imagination." His tone was no longer soft. He grabbed Diogo's hand and carefully brushed it aside. "My mind was made up the moment I approached you. You are excused." His eyes lingered in contact with Diogo's for a few seconds more, before sharply strutting passed. 
+"I believe you to be a smart man, Brother Diogo, but you have a vivid imagination." His tone was no longer soft. He grabbed Diogo's hand and carefully brushed it aside. "My mind was made up the moment I approached you. You are excused." His eyes lingered in contact with Diogo's for a few seconds more, before he began sharply strutting passed. 
 
 Diogo's shoulder's dropped down and his arms hung. The ringing grew. Quickly, he turned around to state his next argument to the Elder Monk, but the mud on the soles of his boots stopped Diogo. 
