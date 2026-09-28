@@ -1,0 +1,3 @@
+"Can you believe the audacity?" Diogo proclaimed, slamming his flagon into the table. Mead splashed out, dribbling down his wrist and forearm. He raised his hand to his mouth and sucked the remaining alcohol until it was dry, albeit a bit sticky upon his skin.
+
+"Thinking that I need a fucking net," Diogo muttered between licking his lips. "I'm a fully grown man whose fended for himself for twenty winters doing this."

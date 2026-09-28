@@ -1,0 +1,1 @@
+Immediately after, he tells someone else about it. His account must differ from scene one: omit, emphasize, reorder, soften.

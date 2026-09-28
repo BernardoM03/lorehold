@@ -1,19 +1,17 @@
-Diogo looked to the window. It was built into square inlay of the pinewood wall, with two pinewood shutter doors that Diogo had pushed and locked outwards the previous night. The window peered out into an open field. A much too open field, as despite it being early spring, no crops were planted yet. With the famine, the seeds either had to be eaten went bad during the winter.
-
-He waited for a few moments longer, but there was nothing else.
+Diogo looked to the window. It was built into square inlay of the pinewood wall, with two pinewood shutter doors that he had pushed and locked outwards the previous night. The window peered out into an open field. A much too open field, as despite it being early spring, no crops were planted yet. With the famine, the seeds either went bad during the winter or had been eaten already. He waited for a few moments longer, but there was nothing else.
 
 He turned around, facing the rest of the common room, as a sharp prick poked him in his neck. There was a large stalk of straw stuck in his shirt. It hadn't poked through the fabric, but had rested on a frayed thread of the worn cotton. That is, until it shifted at Diogo's movement. 
 
-The straw dug into his skin, so tried Diogo brush it off. It then stuck to his fingers. He went to brush it off again, but it stuck to the other hand. Diogo chuffed, then grabbed it with his teeth and begin chewing. 
+The straw dug into his skin, so tried Diogo brush it off. It then stuck to his fingers. He went to brush it off again, but it stuck to the other hand. Diogo chuffed, then grabbed it with his teeth and begin chewing. It was stiff between his teeth. With each chew, Diogo could feel larger stalk began to break down into smaller strands of fiber that bristled upon his tongue. 
 
-He sat down onto his bed, before he noticed an ache in his lower spine. He lied down onto his bed and stared at the ceiling. Chestnut framing and pinewood planking. Between the planks hung exposed straw from the thatching. Diogo chuffed again, before pausing and looking down to his shirt. There was one more piece of straw stuck on the thread near his lower ribs. He brushed it off
+A cold breeze blew in from the window. It caressed around his arm, flowing up his sleeve into his clothes. It also blew the rest of the straw from his mouth. Diogo snapped his head to the window with a glare. He marched forward and reached out his hand,  grabbing the shutter doors with force enough to splinter. He was about to slam it shut, but in the corner of his eye spotted that the field now had a visitor. A small raccoon. It had a wily frame with a mask that split, unfinished, down the middle. The runt of it's litter pointlessly scavenging an open field. Diogo slumped and removed his arm from the shutter door. 
 
-Diogo sat up and scanned the rest of his clothes. He froze as he scanned his arm, his eyes passing the window. He stared unmoving for a few seconds. Nothing but an empty field.
+He noticed an ache in his lower spine. He lied down onto his bed and stared at the ceiling. Chestnut framing and pinewood planking. Between the planks hung exposed straw from the thatching. Diogo chuffed again, before pausing and looking down to his shirt. There was one more piece of straw stuck on the thread near his lower ribs. He began to raise his arm to swipe it, but paused for a moment, and then picked that one with his fingers, raising it into his mouth to begin chewing.
 
-He had continued to chew until stalk of straw had now bent down, falling limp and hitting Diogo's chin. He used his teeth to shuffle the stalk further into his mouth and continued to chew and clean himself from straw. With each bite, the dry grains spread onto his tongue, like coarse sand. Or perhaps dirt. The dirt would have to be a mid-summer dirt, when it's dryer and the plants have soaked most of the moisture.  
+Diogo sat up and scanned the rest of his clothes. He froze as he scanned his arm, his eyes passing the window. He stared unmoving for a few seconds. Nothing but an open field. Not even a raccoon this time. He lied back down and closed his eyes.
 
-A small thud came from near the window.
+The stalk of straw bent down, falling limp and hitting Diogo's chin. Unconsciously, he had chewed it too harshly and broke them stem, but he used his teeth to shuffle the stalk further into his mouth and continued to chew. With each bite, the dry grains spread onto his tongue, like sand. Or more accurately coarse dirt. It would have to be a mid-summer dirt, when it's dryer and the plants have soaked most of the moisture. 
 
-A small parchment tube that was tied shut with yarn thread rolled across the wooden boards, stopping at the exposed treenail protruding from the floor. His mother's raven stood on the Chestnut windowsill.
+A cold breeze blew in from the window again. Not strong enough to rid him of his straw, but enough to know it was there. Diogo kept his eyes closed, but felt his head naturally fall, turning in the direction of the cold breeze. It massaged his face, down the bridge of his nose to his lips and eye-lids. It flowed through between his beard and mustache and eyebrows, with each hair dancing upon his skin, until the dancing stopped.
 
-It arrived.
+With the wind gone, Diogo opened his eyes to an open field. A much too open field. A nothing else.
